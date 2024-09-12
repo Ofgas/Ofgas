@@ -5,7 +5,7 @@
 
 - 👯 I’m looking to collaborate on **pretty much anything**
 
-- 🤝 I’m looking for help with **also most things**
+- 🤝 I’m looking for help with **most things**
 
 - 📫 How to reach me **denos6041@gmail.com**
 
